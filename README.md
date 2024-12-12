@@ -4,4 +4,4 @@
 > ### 김동원 = 아빠 https://father.another.gold<br>
 > ### 김필이 = 엄마 https://mother.another.gold<br>
 > ### 김소윤 = 누나 https://sister.another.gold
-![388340486-4dfda781-c5a2-4d18-b621-4b969ac9b775](https://github.com/user-attachments/assets/22117570-f2a0-419c-8032-eedfd4cf11e7)
+![가족관계증명서](https://github.com/user-attachments/assets/ee89788b-9f5b-4d39-b502-8e980946dd6c)
